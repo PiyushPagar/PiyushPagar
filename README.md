@@ -21,5 +21,6 @@ I'm always eager to learn and stay up-to-date with the latest trends in software
 
 Feel free to connect with me on LinkedIn to stay updated on my projects and insights into the ever-evolving world of technology.
 
-🌐 [LinkedIn](https://www.linkedin.com/in/piyushpagar)
+🌐 [LinkedIn](https://www.linkedin.com/in/piyush-pagar-27664a196)
+🌐 [twitter](https://twitter.com/PiyushPagar7)
 
